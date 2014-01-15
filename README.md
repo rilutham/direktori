@@ -107,6 +107,7 @@ R
 -
 
 * Rezha Julio ([@kimiamania](http://twitter.com/kimiamania))
+* [Riky Lutfi Hamzah] (http://luxurygalaxy.blogspot.com) ([@rilutham](https://twitter.com/rilutham))
 
 S
 -
